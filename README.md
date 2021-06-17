@@ -4,7 +4,7 @@ BSC Jackpot Token!
 👾 ARCADE TOKEN 👾 BSC JACKPOT TOKEN
 Telegram group: https://t.me/arcadetoken
 
-Website: https:/arcadetoken.xyz
+Website: https://arcadetoken.xyz
 
 Twitter: https://twitter.com/arcadetokenbsc
 
