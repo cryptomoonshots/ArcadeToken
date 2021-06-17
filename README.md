@@ -3,7 +3,10 @@ BSC Jackpot Token!
 
 👾 ARCADE TOKEN 👾 BSC JACKPOT TOKEN
 Telegram group: https://t.me/arcadetoken
-Website: arcadetoken.xyz
+
+Website: https:/arcadetoken.xyz
+
+Twitter: https://twitter.com/arcadetokenbsc
 
 Hey human! Welcome to ARCADE TOKEN! The only playable jackpot token, where members can win a HUGE jackpot of tokens every week!
 
