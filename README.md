@@ -1,0 +1,2 @@
+# ArcadeToken
+BSC Jackpot Token!
